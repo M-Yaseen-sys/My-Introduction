@@ -35,7 +35,7 @@
 
 ## 📫 Connect with me
 - GitHub: [M-Yaseen-sys](https://github.com/M-Yaseen-sys)  
-- LinkedIn: [M-Yaseen](www.linkedin.com/in/muhammad-yaseen-433b6b295)  
+- LinkedIn: [Muhammad Yaseen](www.linkedin.com/in/muhammad-yaseen-433b6b295)  
 
 ---
 
